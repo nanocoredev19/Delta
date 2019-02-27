@@ -1,3 +1,1 @@
-# Delta
- je vais reussir ma vie , je suis sur par aide des anges 
-force
+SALUT MON  BB A MOI COMMENT TU  VA,,?  je vais bien test 
