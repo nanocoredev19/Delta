@@ -1,1 +1,1 @@
-SALUT MON  BB A MOI COMMENT TU  VA,,?  je vais bien test 
+mon  projet conscite a cree un mini site pour le supermarche de mon quartier et ensuite cree un  script de redirection merci 
